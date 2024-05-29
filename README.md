@@ -6,7 +6,7 @@
 
 ## Video demonstration of software work
 
-- **https://www.youtube.com/watch?v=fkeyhUQ3lI0**
+- **https://www.youtube.com/watch?v=8mZHjqRj2WY**
   
 ## How does it work?
 A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users:
