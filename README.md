@@ -27,10 +27,10 @@ A large number of accounts of colorful members enter the stream on schedule, don
 - *Your personal boost, you can independently raise any model with GUARANTEE to the TOP with 1 button and earn bigger money every work day, using our software.
 
 
-## [+] Contact :
+## [+] Details about software on our site :
   <div>
-    <a href="https://t.me/taras_cn">
-      <img src="https://img.shields.io/badge/Chat with Owner-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
+    <a href="https://webmodelstraffic.com/chaturbate-software">
+      <img src="https://img.shields.io/badge/webmodelstraffic-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
     </a>
     <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">Click to buy</p>
   </div>
