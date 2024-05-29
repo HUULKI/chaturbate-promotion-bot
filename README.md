@@ -3,7 +3,7 @@
 
 
 ## Video
-![Alt text](https://i.ibb.co/M69wS8z/bandicam-2024-05-26-23-36-28-713-P7gg-Hx-UZ-ezgif-com-video-to-gif-converter.gif)
+![Alt text](https://www.youtube.com/watch?v=fkeyhUQ3lI0)
 
 ## How does it work?
 A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users,
