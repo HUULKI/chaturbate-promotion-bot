@@ -2,8 +2,7 @@
 
 
 
-## Video
-![Alt text](/vid.gif)
+![Alt Text](/vid.gif)
 
 ## How does it work?
 A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users,
