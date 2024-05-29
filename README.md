@@ -3,7 +3,7 @@
 
 
 ## Video
-![Alt text](https://www.youtube.com/watch?v=fkeyhUQ3lI0)
+![Alt text](https://ibb.co/vYDyqsN)
 
 ## How does it work?
 A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users,
