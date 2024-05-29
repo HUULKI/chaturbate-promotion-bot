@@ -1,9 +1,9 @@
-# HUULKI Email Spoofer
+# Chaturbate software/bot for promoting to the top on the site
 
 
 
-## Screenshot
-![Alt text](https://i.ibb.co/M69wS8z/bandicam-2024-05-26-23-36-28-713-P7gg-Hx-UZ-ezgif-com-video-to-gif-converter.gif "Chaturbate software/bot for promoting to the top on the site")
+## Video
+![Alt text](https://i.ibb.co/M69wS8z/bandicam-2024-05-26-23-36-28-713-P7gg-Hx-UZ-ezgif-com-video-to-gif-converter.gif)
 
 ## How does it work?
 A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users,
