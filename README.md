@@ -9,7 +9,7 @@
 - **https://www.youtube.com/watch?v=fkeyhUQ3lI0**
   
 ## How does it work?
-A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users,
+A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users:
 
 - The model’s room rises to the 1st page of the site
 - Live accounts of members are used for promotion
@@ -24,7 +24,7 @@ A large number of accounts of colorful members enter the stream on schedule, don
 
 ## 💵 🔝
 
-- *Your personal boost, you can independently raise any model with GUARANTEE to the TOP with 1 button and earn bigger money every work day, using our software.
+- Your personal boost, you can independently raise any model with GUARANTEE to the TOP with 1 button and earn bigger money every work day, using our software.
 
 
 ## [+] Details about software on our site :
