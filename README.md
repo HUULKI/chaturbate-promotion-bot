@@ -29,9 +29,7 @@ A large number of accounts of colorful members enter the stream on schedule, don
 
 ## [+] Details about software on our site :
   <div>
-    <a href="https://webmodelstraffic.com/chaturbate-software">
-      <img src="https://img.shields.io/badge/webmodelstraffic-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
-    </a>
+    https://webmodelstraffic.com/chaturbate-software
     <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">Click to access the site</p>
   </div>
     <div>
