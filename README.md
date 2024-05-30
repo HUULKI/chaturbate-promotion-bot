@@ -36,6 +36,6 @@ A large number of accounts of colorful members enter the stream on schedule, don
     <a href="[https://webmodelstraffic.com/chaturbate-software](https://t.me/taras_cn)">
       <img src="https://img.shields.io/badge/Contact Telegram-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
     </a>
-    <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">My telegram</p>
+    <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">To buy, message me on Telegram</p>
   </div>
 </div>
