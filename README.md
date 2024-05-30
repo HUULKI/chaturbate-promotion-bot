@@ -3,7 +3,7 @@
 
 
 ![Alt Text](https://i.ibb.co/fCGmBtx/image.png)
-![Alt Text](https://i.ibb.co/G7hHrx6/image.png)
+
 ## Video demonstration of software work
 
 - **https://www.youtube.com/watch?v=8mZHjqRj2WY**
@@ -26,7 +26,7 @@ A large number of accounts of colorful members enter the stream on schedule, don
 
 - Your personal boost, you can independently raise any model with GUARANTEE to the TOP with 1 button and earn bigger money every work day, using our software.
 
-![Alt Text](https://i.ibb.co/G7hHrx6/image.png)
+![Alt Text](/foto.png)
 
 ## [+] Details about software on our site :
   <div>
