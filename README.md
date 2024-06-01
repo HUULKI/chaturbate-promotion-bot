@@ -34,8 +34,8 @@ A large number of accounts of colorful members enter the stream on schedule, don
     <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">Click to access the site</p>
   </div>
     <div>
-    <a href="[https://webmodelstraffic.com/chaturbate-software](https://t.me/taras_cn)">
-      <img src="https://img.shields.io/badge/Contact Telegram-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
+    <a href="https://t.me/Chaturbate_Software_bot">
+      <img src="https://img.shields.io/badge/Telegram-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
     </a>
     <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">To buy, message me on Telegram</p>
   </div>
