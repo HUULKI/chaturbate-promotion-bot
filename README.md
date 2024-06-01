@@ -8,6 +8,11 @@
 
 - **https://www.youtube.com/watch?v=8mZHjqRj2WY**
 
+✅ FREE TEST OF CHATURBATE PROMOTION TO TOP SOFTWARE ON YOUR MODEL 
+<div>
+    <a href="https://t.me/taras_cn">
+      <img src="https://img.shields.io/badge/FREE TEST-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
+    </a>
 ## How does it work?
 A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users:
 
