@@ -1,4 +1,4 @@
-# Chaturbate bot for promoting to the top on the site
+# Chaturbate software/bot for promoting to the top on the site
 
 
 
