@@ -18,7 +18,6 @@
 ## How does it work?
 
 - The model’s room rises to the 1st page of the site
-- Live accounts of members are used for promotion
 - Accounts can donate on stream
 - Work according to the model’s schedule
 - You can promote several models at the same time
