@@ -16,7 +16,6 @@
 </div>   
 
 ## How does it work?
-A large number of accounts of colorful members enter the stream on schedule, donate and watch stream like real users:
 
 - The model’s room rises to the 1st page of the site
 - Live accounts of members are used for promotion
