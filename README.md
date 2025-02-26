@@ -35,7 +35,7 @@
 
 ## [+] Details about software on our site :
   <div>
-    https://webmodelstraffic.com/chaturbate-software
+    https://t.me/webcam_traffic_bot
     <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">Click to access the site</p>
   </div>
     <div>
