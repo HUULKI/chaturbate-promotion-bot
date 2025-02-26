@@ -39,7 +39,7 @@
     <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">Click to access the site</p>
   </div>
     <div>
-    <a href="https://t.me/Chaturbate_Software_bot">
+    <a href="https://t.me/webcam_traffic_bot">
       <img src="https://img.shields.io/badge/Telegram-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
     </a>
     <p style="font-weight: bold; font-size: 16px; margin: 5px 0;">To buy, message me on Telegram</p>
