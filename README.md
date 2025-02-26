@@ -10,7 +10,7 @@
 
 ✅ FREE TEST OF CHATURBATE PROMOTION TO TOP SOFTWARE ON YOUR MODEL 
 <div>
-    <a href="https://t.me/taras_cn">
+    <a href="https://t.me/webcam_traffic_bot">
       <img src="https://img.shields.io/badge/FREE TEST-👤-blue?style=for-the-badge&logo=telegram" alt="Telegram Owner">
     </a>
 </div>   
